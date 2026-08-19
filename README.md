@@ -5,3 +5,7 @@ https://docs.google.com/spreadsheets/d/1dGOfjOBAwG7eM00Dj0usVeGKQtfuWEsIRwZ9BwD-
 ## Google Drive Link
 
 https://drive.google.com/drive/folders/1RqCDWTJdrPnkTImaq56vSitSrr8EUkKF?usp=sharing
+
+## MID COURSE FEEDBACK
+
+https://forms.gle/aJiHUFTR1oG4Xkg79
